@@ -1,6 +1,6 @@
 <h1 align="center">Hey guys👋, I'm Pradnya Kshirsagar</h1>
 <h3 align="center">A girl who is interested in trying new things</h3>
-<h2>Hiiiiiii</h2>
+
 - 🌱 I’m currently learning **Machine Learning**
 
 - 📫 How to reach me **pradnyakshirsagar63@gmail.com**
