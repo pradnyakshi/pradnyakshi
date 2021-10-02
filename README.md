@@ -3,8 +3,6 @@
 
 - 📫 How to reach me **pradnyakshirsagar63@gmail.com**
 
-- 🤝 for more friendly connection, [**Lets chat on WhatApp**](https://wa.link/4xcx7b)
-
 - ⚡ Fun fact **Just meet then you will understand what is fun in me**
  
 
